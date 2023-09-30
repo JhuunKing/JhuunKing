@@ -1,6 +1,6 @@
 - Hey there! 
 
-- Welcome to my GitHub! My name is Pedro but everyone calls me Juno :)
+- Welcome to my GitHub! My name is Juno :)
 
 🌟 A little bit of me
 
